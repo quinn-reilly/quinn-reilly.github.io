@@ -1,1 +1,0 @@
-# quinn-reilly.github.io
